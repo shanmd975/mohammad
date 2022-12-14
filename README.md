@@ -12,6 +12,5 @@
 ✔️ 👋 ʜɪ, ɪ’ᴍ @Mohammad Shannoor1995.
 ✔️ 👀 ɪ’ᴍ ɪɴᴛᴇʀᴇꜱᴛᴇᴅ ɪɴ ᴄᴏᴅɪɴɢ.
 ✔️ 📝 ɪ’ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ʟᴇᴀʀɴɪɴɢ Java ,ʜᴛᴍʟ,POWER BI,ᴄSS &JavaScript MYSQL. 
-✔️ 🤹‍♂️ ꜰᴏʀ ᴄʜɪʟʟ ᴊᴏɪɴ TELEGRAM :- @lootdailyoffers
 ✔️ ☎ ᴄᴏɴᴛᴀᴄᴛ ᴍᴇ :- +918498984502
 ✔️ 📧 ᴇ-ᴍᴀɪʟ ᴀᴛ :- shanmd975@gmail.com
